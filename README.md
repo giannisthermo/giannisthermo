@@ -28,6 +28,6 @@ I'm a seasoned Project Administrator with background in managing complex project
 
 ## 📫 How to reach me:
 - Email: [thermogiannis.giannis@gmail.com]
-- LinkedIn: [https://www.linkedin.com/giannis-thermogiannis]
+- LinkedIn: [https://www.linkedin.com/in/giannis-thermogiannis]
 
 I'm always open to discussing new projects, innovative ideas, or opportunities to bring efficiency and insight into operations with my unique blend of administrative and technical skills. Let's connect!
